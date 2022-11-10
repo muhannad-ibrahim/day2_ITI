@@ -1,2 +1,2 @@
 # merge-task
-![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.freepik.com%2Ffree-photos-vectors%2Fcartoon-crocodilepsig=AOvVaw3nHROA6fGm_5gmBs3XHNPM&ust=1668168399669000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCJjYmdnJo_sCFQAAAAAdAAAAABAE)
+![alt text](https://img.freepik.com/free-vector/cute-crocodile-waving-hand-cartoon-vector-icon-illustration-animal-nature-icon-concept-isolated_138676-6015.jpg?w=2000)
